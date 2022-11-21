@@ -16,3 +16,4 @@ think about space for cat
 
 MAYBE GET A DOG AND DOG SPACE
 
+more ideas about the kitchen
